@@ -1,3 +1,4 @@
+21
 Strategic
 20
 Revolutionary
