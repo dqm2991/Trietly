@@ -1,3 +1,4 @@
+Focus on your goals, not the obstacles.
 Don't let the noise of others' opinions drown out your own inner voice.
 # Trietly
 Discipline is the bridge between goals and accomplishment.
