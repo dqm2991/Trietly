@@ -1,3 +1,4 @@
+22
 Fundamental
 21
 Strategic
