@@ -6,3 +6,4 @@ The best way to predict the future is to create it.
 Today is the result of what you did yesterday. Tomorrow will be the result of what you do today.
 You don't have to be great to start, but you have to start to be great.
 Don't watch the clock; do what it does. Keep going.
+The only limit is the one you set in your own mind.
