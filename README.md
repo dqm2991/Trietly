@@ -1,4 +1,5 @@
 # Trietly
+Fall seven times, stand up eight.
 Winners never quit, and quitters never win.
 Don't be afraid of going slowly, be afraid of standing still.
 Only when it is dark enough can you see the stars.
