@@ -1,3 +1,4 @@
+​Be stubborn about your goals but flexible about your methods.
 Energy flows where attention goes.
 Focus on your goals, not the obstacles.
 Don't let the noise of others' opinions drown out your own inner voice.
