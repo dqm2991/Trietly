@@ -1,4 +1,5 @@
 # Trietly
+Believe you can and you're halfway there.
 You were born an original, don't die a copy.
 Fall seven times, stand up eight.
 Winners never quit, and quitters never win.
