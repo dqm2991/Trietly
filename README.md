@@ -1,4 +1,5 @@
 # Trietly
+You were born an original, don't die a copy.
 Fall seven times, stand up eight.
 Winners never quit, and quitters never win.
 Don't be afraid of going slowly, be afraid of standing still.
