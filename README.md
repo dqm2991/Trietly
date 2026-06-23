@@ -1,3 +1,4 @@
+Be kind to yourself and patient with your journey.
 ​A smile is the most powerful weapon to face any challenge.
 One positive thought in the morning can change your whole day.
 Think big, but enjoy the small pleasures.
