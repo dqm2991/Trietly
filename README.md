@@ -1,3 +1,4 @@
+Life is 10% what happens to you and 90% how you react to it.
 Invest in yourself; it’s the investment that pays the highest return.
 Great achievements are built on small things done consistently.
 Your time is limited, so don't waste it living someone else's life.
