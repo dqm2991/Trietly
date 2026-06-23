@@ -1,3 +1,4 @@
+Invest in yourself; it’s the investment that pays the highest return.
 Great achievements are built on small things done consistently.
 Your time is limited, so don't waste it living someone else's life.
 ​If you get 1% better each day, you'll be 37 times better by the end of the year.
