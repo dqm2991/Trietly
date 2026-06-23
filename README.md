@@ -1,3 +1,4 @@
+Power
 24
 Trigger
 23
