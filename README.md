@@ -1,3 +1,4 @@
+Great achievements are built on small things done consistently.
 Your time is limited, so don't waste it living someone else's life.
 ​If you get 1% better each day, you'll be 37 times better by the end of the year.
 ​Be stubborn about your goals but flexible about your methods.
