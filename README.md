@@ -1,4 +1,5 @@
 # Trietly
+Don't compare your chapter 1 to someone else's chapter 20.
 Work in silence and let your success be your noise.
 Your value is not defined by the words of those around you.
 Be the best version of yourself, not a copy of someone else.
