@@ -1,4 +1,5 @@
 # Trietly
+Be the best version of yourself, not a copy of someone else.
 No one can make you feel inferior without your consent.
 ​No one can make you feel inferior without your consent.
 Believe you can and you're halfway there.
