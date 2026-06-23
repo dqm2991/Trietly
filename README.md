@@ -1,4 +1,5 @@
 # Trietly
+Discipline is the bridge between goals and accomplishment.
 If you want to go fast, go alone. If you want to go far, go together.
 Your life is a book, and you are the only author.
 Keep walking and you will arrive; keep knocking and the door will open.
