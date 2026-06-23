@@ -1,3 +1,4 @@
+Don't let the noise of others' opinions drown out your own inner voice.
 # Trietly
 Discipline is the bridge between goals and accomplishment.
 If you want to go fast, go alone. If you want to go far, go together.
