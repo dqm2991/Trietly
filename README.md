@@ -7,3 +7,4 @@ Today is the result of what you did yesterday. Tomorrow will be the result of wh
 You don't have to be great to start, but you have to start to be great.
 Don't watch the clock; do what it does. Keep going.
 The only limit is the one you set in your own mind.
+Present laziness is the price paid for future regret.
