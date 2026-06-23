@@ -1,3 +1,4 @@
+26
 Synergy
 25
 Power
