@@ -1,3 +1,4 @@
+Insightful
 22
 Fundamental
 21
