@@ -1,4 +1,5 @@
 # Trietly
+Winners never quit, and quitters never win.
 Don't be afraid of going slowly, be afraid of standing still.
 Only when it is dark enough can you see the stars.
 Today's wounds will be tomorrow's scars of resilience.
