@@ -1,3 +1,4 @@
+​If you get 1% better each day, you'll be 37 times better by the end of the year.
 ​Be stubborn about your goals but flexible about your methods.
 Energy flows where attention goes.
 Focus on your goals, not the obstacles.
