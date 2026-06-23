@@ -1,4 +1,5 @@
 # Trietly
+Your value is not defined by the words of those around you.
 Be the best version of yourself, not a copy of someone else.
 No one can make you feel inferior without your consent.
 ​No one can make you feel inferior without your consent.
