@@ -1,4 +1,5 @@
 # Trietly
+Today's wounds will be tomorrow's scars of resilience.
 Failure is just a temporary resting place, not the end of the journey.
 No pressure, no diamonds.
 Rough diamonds need polishing to shine. Hardship is the forge that refines the gold within you.
