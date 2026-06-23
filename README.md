@@ -1,4 +1,5 @@
 # Trietly
+​No one can make you feel inferior without your consent.
 Believe you can and you're halfway there.
 You were born an original, don't die a copy.
 Fall seven times, stand up eight.
