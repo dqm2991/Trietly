@@ -1,4 +1,5 @@
 # Trietly
+No pressure, no diamonds.
 Rough diamonds need polishing to shine. Hardship is the forge that refines the gold within you.
 When you want to give up, remember why you started.
 Doc nhe
