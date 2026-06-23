@@ -1,4 +1,5 @@
 # Trietly
+Don't be afraid of going slowly, be afraid of standing still.
 Only when it is dark enough can you see the stars.
 Today's wounds will be tomorrow's scars of resilience.
 Failure is just a temporary resting place, not the end of the journey.
