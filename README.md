@@ -1,4 +1,5 @@
 # Trietly
+Rough diamonds need polishing to shine. Hardship is the forge that refines the gold within you.
 When you want to give up, remember why you started.
 Doc nhe
 A journey of a thousand miles begins with a single step.
