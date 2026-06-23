@@ -3,3 +3,4 @@ Doc nhe
 A journey of a thousand miles begins with a single step.
 Don't wait for the perfect opportunity; create it.
 The best way to predict the future is to create it.
+Today is the result of what you did yesterday. Tomorrow will be the result of what you do today.
