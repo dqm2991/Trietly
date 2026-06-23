@@ -9,3 +9,4 @@ Don't watch the clock; do what it does. Keep going.
 The only limit is the one you set in your own mind.
 Present laziness is the price paid for future regret.
 Don't wish it were easier; wish you were better.
+Success doesn't come to those who only dream; it comes to those who take action.
