@@ -1,4 +1,5 @@
 # Trietly
+Your life is a book, and you are the only author.
 Keep walking and you will arrive; keep knocking and the door will open.
 Your mindset determines your position.
 Don't compare your chapter 1 to someone else's chapter 20.
