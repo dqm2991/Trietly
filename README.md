@@ -1,3 +1,4 @@
+25
 Power
 24
 Trigger
