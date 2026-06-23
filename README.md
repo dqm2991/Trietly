@@ -1,3 +1,4 @@
+Be the positive energy you want to attract.
 The past is gone, the future is yet to come, live fully in the present moment.
 Change your mindset, change your life.
 Be kind to yourself and patient with your journey.
